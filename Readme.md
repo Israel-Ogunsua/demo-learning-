@@ -10,3 +10,9 @@ Watch the next tutorial
 
 1 open  your index.html and the readme 
 2 make the movie interestion in the feuture whith some food 
+
+# making life simple to live 
+1 Exercesice 
+2 Get Educated more 
+3 Get a partner
+and remember you only have one life to live!!!!... 
