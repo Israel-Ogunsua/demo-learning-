@@ -19,3 +19,6 @@ byeeeee
 2 Get Educated more 
 3 Get a partner
 and remember you only have one life to live!!!!... 
+
+This is whare i added a new thing 
+pleas don't maege me 
