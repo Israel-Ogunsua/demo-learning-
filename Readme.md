@@ -22,3 +22,7 @@ and remember you only have one life to live!!!!...
 
 # this will make me feel better 
 I am also the main so i mareg who ever i went just with a single push func
+
+This is whare i added a new thing 
+pleas don't maege me 
+
