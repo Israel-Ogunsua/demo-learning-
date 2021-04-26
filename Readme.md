@@ -19,3 +19,6 @@ byeeeee
 2 Get Educated more 
 3 Get a partner
 and remember you only have one life to live!!!!... 
+
+# this will make me feel better 
+I am also the main so i mareg who ever i went just with a single push func
